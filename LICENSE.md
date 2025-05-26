@@ -1,0 +1,2 @@
+
+Copyright (C) 2025 ÁNGEL CÁMARA RAMOS
